@@ -6,8 +6,7 @@
 - 🌱 Estou estudando sobre Gerencia, Líderança, Segurança e Programação.
 - 👯 Estou sempre procurando por Networks
 - 💬 Estou sempre  disponível para conversas inteligentes ...
-- 😄 Pronomes: Ele/Dele
-- ⚡ Fun fact: Gosto chá, frio, meus cachorrinhos, RPG de mesa, Guitarra e homeoffice, mas amo muito minha área de atuação.
+- ⚡ Fun fact: Jogo RPG de mesa, Guitarra e homeoffice, mas amo muito minha área de atuação.
 
 ⛧°｡⋆༺♱༻⋆｡°⛧
 
